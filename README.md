@@ -48,7 +48,7 @@ Estos son los proyectos clave que demuestran mi experiencia y capacidad para gen
 ### ✉️ Contáctame
 
   * **LinkedIn:** [victorh-980803](https://www.google.com/search?q=https://www.linkedin.com/in/victorh-980803)
-  * **Portafolio Personal:** [cubodeideas.com](http://portfolio.cubodeideas.com/victor)
+  * **Portafolio Personal:** [cubodeideas.com](http://portfolio.cubodeideas.com/es/victor)
   * **Correo Electrónico:** vichdz@cubodeideas.com 
   * **GitHub (Tú estás aquí):** vector98h
 
